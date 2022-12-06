@@ -1,1 +1,1 @@
-https://atheodog.github.io/hazarda/
+https://qaardvark.github.io/hazarda/
